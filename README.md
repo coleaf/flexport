@@ -1,1 +1,1 @@
-Hi, this leaf again. Nice too meet you again. Hope you're doing ok. Today i'm going to make my kitty profile (Don't this this is weird just because im male). In this project I'm going to introduce you my team members. So anyway goodbye for now, take care my future self. Hope i'm alive to read this again. Thank you! 
+Hi, this leaf again. Nice too meet you again. Hope you're doing ok. Today i'm going to make my manga website.  So anyway goodbye for now, take care my future self. Hope i'm alive to read this again. Thank you! 
